@@ -22,9 +22,9 @@ The demo can be downloaded [here](https://www.dropbox.com/s/yzqamz8b8eflpik/Time
 - ABC and Clarion template chain
 - No extra libraries
 
-### Price
-$100
-
 ### Contacts
 mikeduglas@yandex.ru  
 mikeduglas66@gmail.com  
+  
+
+[Buy now](https://www.clarionshop.com/checkout.cfm?pid=1663&q=1&)
